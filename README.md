@@ -10,7 +10,7 @@
 
 -he/them![97872dec](https://github.com/user-attachments/assets/caeaf9f1-8b48-4d9f-94d4-df19e1e8ce14)
 
->nicknames↴
+>names↴
 >
 >ren, sinclair, r(FOR SILLY/SYL), sin
 
