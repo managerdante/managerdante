@@ -12,6 +12,6 @@
 
 >names↴
 >
->ren, sinclair, r(FOR SILLY/SYL), sin
+>ren, sinclair, sin
 
 <img width="231" height="7" alt="66e03423" src="https://github.com/user-attachments/assets/731054ae-8b5f-42dc-a175-a08a494caa4c" />
