@@ -7,7 +7,7 @@
 do NOT copy my skins, please ask for inspo. ![c4a53200](https://github.com/user-attachments/assets/59770c3c-e961-40c9-9074-cd2c9a8d93cf)
 
 *![d19c7043](https://github.com/user-attachments/assets/e100be3c-2f6d-4208-a231-e05724261add)
-if unable to follow what i say, then say bye-bye!*
+if unable to follow what i say, then bye-bye!*
 
 ![tumblr_3237e115f1a71f8256ea531931f091ba_be1cf635_400](https://github.com/user-attachments/assets/6fb961ff-134f-4030-b1f1-8a612b9e56ca)
 
